@@ -1,7 +1,7 @@
 ### Nomes da equipe
 
 
-Rafael Pereira, 
+Rafael Pereira, gostoso
 Biaanca de Oliveira,
 Vinicius Cavalcante,
 Lucas Abrahao,
